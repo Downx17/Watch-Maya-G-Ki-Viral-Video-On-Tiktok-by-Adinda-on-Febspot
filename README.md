@@ -104,7 +104,3 @@ The guys later released the video after attempting to blackmail her and she has 
 
 
 In her first response to the scandal Angie went live on Tiktok and brushed off the controversial video
-
-HoYoLAB • Reality LAB
-
-2
